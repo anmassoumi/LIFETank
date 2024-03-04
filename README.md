@@ -8,3 +8,4 @@ I was able to have the incredible opportunity to participate in a Shark Tank-sty
 
 We were able to present in front of esteemed judges: Professor Pim Oomen, Ph.D., , and CEO/Founder of UpKeep, Ryan Chen
 
+![Drone Image](https://github.com/anmassoumi/LIFETank/assets/161991714/5c21ed61-fca5-4d14-be2c-b40ad030bf68)
